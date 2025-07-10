@@ -20,4 +20,4 @@
 
 开启隐私模式，无痕浏览，确保你的使用安全和隐私不泄露。立即点击下方任意入口，进入一个纯净无干扰的高清无码AV世界！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben199999 ）</span> 
